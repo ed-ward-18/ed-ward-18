@@ -1,4 +1,3 @@
-![https://static.vecteezy.com/system/resources/previews/005/544/718/non_2x/profile-icon-design-free-vector.jpg]
 # Hello, I'm Edward
 - I'm a student at Ormiston Senior College, currently in year 12.
 ## My Whakapapa
